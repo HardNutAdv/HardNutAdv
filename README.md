@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HardNutAdv
-- 👀 I’m interested in IT @ Web Development as well wb working
+- 👀 I’m interested in IT @ Web Development as well web working
 - 🌱 I’m currently learning Web Developlment
 - 💞️ I’m looking to collaborate on Web Networking
 - 📫 How to reach me zainadv321@gmail.com
